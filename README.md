@@ -229,4 +229,4 @@ The Ascent is offered as a full free version with all features unlocked and regu
 Get ready to immerse yourself in the action-packed world of The Ascent. Download now and start your adventure today!
 
 ---
-**Last updated:** 2026-09-18 18:41:18 UTC
+**Last updated:** 2026-09-18 21:18:00 UTC
